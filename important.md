@@ -1,0 +1,1 @@
+making sure you fully understand the work, if you know what you are doing, you will be able to work more quickly and accurately.
